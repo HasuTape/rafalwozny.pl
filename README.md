@@ -1,0 +1,1 @@
+# rafalwozny.pl
